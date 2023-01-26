@@ -1,3 +1,7 @@
 # @erickdacohen
 
-Data scientist and software engineer
+Data Scientist and Software Engineer 👨‍💻
+
+🇦🇷 ➡️ 🇺🇸
+
+Never done learning! 👨‍🎓🧉
